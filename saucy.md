@@ -1,4 +1,4 @@
-# Call me Cilly
+# Spicy Green Mean Machine
 
 ## Ingredients
 1/2 cup - Plain yogurt
